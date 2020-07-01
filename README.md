@@ -1,1 +1,0 @@
-# SHKay-Realty-Test
